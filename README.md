@@ -7,7 +7,7 @@
 - 💬 Ask me about Web technologies
 - 📫 How to reach me: Email - deekshasingh3330@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I like listening to songs
+- ⚡ Fun fact: I spend most of time listening to songs
 
 
 
